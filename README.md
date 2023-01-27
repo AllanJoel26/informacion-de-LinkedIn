@@ -1,1 +1,1 @@
-# informacion-de-LinkedIn
+# información-de-LinkedIn
